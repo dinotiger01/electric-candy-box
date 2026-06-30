@@ -1,3 +1,3 @@
-# electric-candy-boxu
+# electric-candy-box
 kj';lk';lk';lk;
 'l
